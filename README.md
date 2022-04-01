@@ -1,6 +1,6 @@
 # 🌱**Jeong HyongMok**🌱
 
-I'm studying Japanese and computer science at Hanbat national university.  
+I'm Double majoring in Japanese(2018~) and Computer Science(2022~) at Hanbat national university.  
 NOOB engineer yet.
 <br/><br/><br/>
   
